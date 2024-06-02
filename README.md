@@ -9,40 +9,40 @@ In late October, Lukas Thompson moved into the room on the 1st floor.
 He told me that he worked "security" at the Up-Down arcade bar.
 We had problems with him since the week he moved in.
 
-As soon as he connected to my wifi, he started shouting at his video games.
+As soon as he connected to my wifi, he started shouting at his video games.\
 2023-11-02: I hesitated to do it, but forced myself to tell him to quiet down,
-since at that point it was after 10pm.
-2023-11-25: I found the front doors left unlocked.
-2023-11-28: I asked him at 11:52 pm to avoid shouting
-2024-01-02: I asked him be quiet at 11:41 pm.
+since at that point it was after 10pm.\
+2023-11-28: I asked him at 11:52 pm to avoid shouting\
+2024-01-02: I asked him be quiet at 11:41 pm.\
 2024-01-07/8 Lukas was shouting until 01:40.  I gave up trying to
 communicate with him about it, and sent future complaints directly to the
-landlord.
+landlord.\
 2024-03-06: He had another outburst of noise between 4pm and 5pm, and I
 disabled his internet access, which I'd been avoiding doing for months.
 
 2023-12-12: I asked him clean up the dirty clean dishes left in the
-sink/counter since 2023-12-04 (8 days)
+sink/counter since 2023-12-04 (8 days)\
 2023-12-27: I asked him again to clean up 10 dirty clean dishes left in the
 sink/counter since 2023-12-18 (9 days), and to clean the sink strainer of food
-waste rather than leaving it behind.
-2024-03-11: There were dirty dishes in the sink/counter until 2024-03-13 (3 days);
-2024-03-14: There were dirty dishes in the sink/counter until 2024-03-21 (7 days);
+waste rather than leaving it behind.\
+2024-03-11: There were dirty dishes in the sink/counter until 2024-03-13 (3 days);\
+2024-03-14: There were dirty dishes in the sink/counter until 2024-03-21 (7 days);\
 
-2024-01-07: Lukas knowingly left the front door unlocked when he couldn't find his key.
-2024-04-01: I found the front door unlocked;
+2023-11-25: I found the front doors left unlocked.\
+2024-01-07: Lukas knowingly left the front door unlocked when he couldn't find his key.\
+2024-04-01: I found the front door unlocked;\
 2024-04-04: I found the front door unlocked, again;
 
-2024-01-10: Lukas called me and woke me up at 4:12 AM when he didn't have his keys;
-2024-01-20: Lukas called me and woke me up at 4:50 AM when he didn't have his keys;
+2024-01-10: Lukas called me and woke me up at 4:12 AM when he didn't have his keys;\
+2024-01-20: Lukas called me and woke me up at 4:50 AM when he didn't have his keys;\
 2024-04-03: Lukas called me and woke me up at 3:25 AM when he didn't have his keys;
 
 2023-12-24: Lukas removed a trash bag from his bedroom and left it on kitchen
-floor overnight.
-2024-03-06: Lukas removed 4 trash bags from his bedroom at once.
+floor overnight.\
+2024-03-06: Lukas removed 4 bags of trash from his bedroom at once.\
 2024-03-08: Lukas removed several bags of trash from his room.  He put them
-into the recycling bin rather than the trash bin.
-2024-03-22: Lukas removed 8 pizza boxes from his bedroom at once.
+into the recycling bin rather than the trash bin.\
+2024-03-22: Lukas removed 8 pizza boxes from his bedroom at once.\
 2024-05-27: Lukas left the back door unlocked for 1.5 hours while taking out
 numerous trash bags full of pizza boxes.  I finally locked it myself.
 
